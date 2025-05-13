@@ -10,7 +10,7 @@ Atualmente, estou cursando o terceiro ano do ensino médio em Santana de Parnaí
 ********************************************************************************************************************************************************************************************************
 ✨Experiências: 
 
-Gosto muito de trabalhar com o canva, para apresentações e trabalhos, tenho experiências com crianças, até porque a profissão eu quero envolve elas, fazer vídeos, analisar as pessoas, trabalhar com vendas pela internet, fazer pdf.
+Gosto muito de trabalhar com o canva, para apresentações e trabalhos, curso de RH, curso de Marketing, tenho experiências com crianças, até porque a profissão eu quero envolve elas, fazer vídeos, analisar as pessoas, trabalhar com vendas pela internet, fazer pdf. 
 
 **********************************************************************************************************************************************************************************************************
 ![MuaKissGIF](https://github.com/user-attachments/assets/5011fc91-c4dc-41c8-90e6-a5540e7fef54)

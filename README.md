@@ -17,27 +17,27 @@ Gosto muito de trabalhar com o canva, para apresentações e trabalhos, curso de
 
 🦁 Frases que a Lele mais fala:
 
-Socorro Deus 
+Socorro Deus 😩
 
 Quero praia 👙
 
-Quero dormir 
+Quero dormir 😴
 
-Quero a minha casa 
+Quero a minha casa 🏡
 
-Quero comer 
+Quero comer 🍔
 
-Tô com fome 
+Tô com fome 😩
 
-Acaba pelo amor de Deus 
+Acaba pelo amor de Deus 😩
 
-Era o meu sonho kkkk
+Era o meu sonho kkkk🥺
 
-Olha o meu ombro ele sobe e desce 
+Olha o meu ombro ele sobe e desce 😁
 
-Pega o seu dedinho e se toca 
+Pega o seu dedinho e se toca 🥱
 
-Fulano de tal Jojo Todynho 
+Fulano de tal Jojo Todynho 😄
 
 
 

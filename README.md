@@ -1,5 +1,7 @@
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?size=24&center=true&vCenter=true&width=700&lines=Olá+dev!;Seja+Bem+vindo(a)+ao+meu+perfil!">
+</p>
 
- ![Typing SVG](https://readme-typing-svg.demolab.com?lines=Olá+dev!+Seja+Bem+vindo(a)ao+meu+perfil!!)
 
 
 

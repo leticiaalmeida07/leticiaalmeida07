@@ -1,46 +1,41 @@
   
-⛱️[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&pause=1000&color=FFFFFF&width=650&height=30&lines=Ol%C3%A1%2C+pessoas!)](https://git.io/typing-svg)
+Olá Dev! Seja bem-vindo(a) ao meu perfil!!
 
+👩‍💻 Sobre mim
+
+Estudante em início de graduação, apaixonada por tecnologia e desenvolvimento de software. Estou constantemente aprimorando minhas habilidades por meio de projetos práticos e estudos contínuos.
+
+Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, com foco em aprendizado constante e crescimento profissional.
  
 
-
-Meu nome é Leticia de Almeida Machado Oliveira, uma pessoa apaixonada por crianças, músicas, comidas, eu sou apaixonda pelo L7NNON e o Arrasceta, amo viajar conhecer lugares novos! 
-
-Atualmente, estou cursando o terceiro ano do ensino médio em Santana de Parnaíba.![FlirtingWinkGIF](https://github.com/user-attachments/assets/fac7667d-1053-4e16-a7c0-dadd4b26e487)
+[FlirtingWinkGIF](https://github.com/user-attachments/assets/fac7667d-1053-4e16-a7c0-dadd4b26e487)
 ********************************************************************************************************************************************************************************************************
-✨Experiências: 
+💼 Conhecimentos
 
-Gosto muito de trabalhar com o canva, para apresentações e trabalhos, curso de RH, curso de Marketing, tenho experiências com crianças, até porque a profissão eu quero envolve elas, fazer vídeos, analisar as pessoas, trabalhar com vendas pela internet, fazer pdf. 
+🎨 Experiência com Canva para criação de apresentações e materiais visuais
+
+📊 Curso de Marketing
+
+📚 Curso de Recursos Humanos (RH)
+
+💻 Interesse em marketing digital
+
+📄 Produção de materiais digitais (PDFs, apresentações e conteúdos visuais)
 
 **********************************************************************************************************************************************************************************************************
 ![MuaKissGIF](https://github.com/user-attachments/assets/5011fc91-c4dc-41c8-90e6-a5540e7fef54)
 
-🦁 Frases que a Lele mais fala:
+🚀 Além do código
 
-Socorro Deus 😩
+🎵 Interesse por música
 
-Quero praia 👙
+🍴 Gosto de conhecer novas experiências gastronômicas
 
-Quero dormir 😴
+🌍 Interesse em viagens 
 
-Quero a minha casa 🏡
+🎬 Interesse em criação de conteúdos digitais
 
-Quero comer 🍔
-
-Tô com fome 😩
-
-Acaba pelo amor de Deus 😩
-
-Era o meu sonho kkkk🥺
-
-Olha o meu ombro ele sobe e desce 😁
-
-Pega o seu dedinho e se toca 🥱
-
-Fulano de tal Jojo Todynho 😄
-
-
-
+💻 Afinidade com ferramentas digitais
 
 
 

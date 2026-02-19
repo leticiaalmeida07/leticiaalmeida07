@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?size=24&center=true&vCenter=true&width=900&lines=Olá+dev!+Seja+Bem+vindo(a)+ao+meu+perfil!">
+  <img src="https://readme-typing-svg.demolab.com?size=26&center=true&vCenter=true&width=1000&lines=Olá+Dev!+Seja+Bem+Vindo(a)+ao+meu+perfil!!">
 </p>
+
 
 
 

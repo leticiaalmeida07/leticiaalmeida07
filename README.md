@@ -16,6 +16,7 @@
 
 Estudante em início de graduação, apaixonada por tecnologia e desenvolvimento de software. Estou constantemente aprimorando minhas habilidades por meio de projetos práticos e estudos contínuos.
 
+
 Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, com foco em aprendizado constante e crescimento profissional.
  
 
@@ -28,13 +29,18 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 🎨 Experiência com Canva para criação de apresentações e materiais visuais
 
+
 📊 Curso de Marketing
+
 
 📚 Curso de Recursos Humanos (RH)
 
+
 💻 Conhecimentos em Marketing Digital
 
+
 🛍️ Experiência prática em E-commerce
+
 
 📄 Produção de materiais digitais (PDFs, apresentações e conteúdos visuais)
 
@@ -48,11 +54,15 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 🎵 Interesse por música
 
+
 🍴 Gosto de conhecer novas experiências gastronômicas
+
 
 🌍 Encantada por viagens, culturas e novas perspectivas
 
+
 🎬 Interesse em criação de conteúdos digitais
+
 
 💻 Afinidade com ferramentas digitais
 

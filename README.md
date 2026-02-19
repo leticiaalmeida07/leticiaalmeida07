@@ -1,5 +1,5 @@
 
- ![Typing SVG](https://readme-typing-svg.demolab.com?lines=Olá+dev!+Seja+Bem+vindo(a)aomeuperfil!)
+ ![Typing SVG](https://readme-typing-svg.demolab.com?lines=Olá+dev!+Seja+Bem+vindo(a)ao+meu+perfil!!)
 
 
 

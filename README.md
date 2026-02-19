@@ -9,7 +9,7 @@
 
 
 
-👩‍💻 **Sobre mim**
+##👩‍💻 **Sobre mim**
 
 
 
@@ -23,7 +23,7 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 
 ********************************************************************************************************************************************************************************************************
-💼 **Conhecimentos**
+##💼 **Conhecimentos**
 
 
 
@@ -53,7 +53,7 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 **********************************************************************************************************************************************************************************************************
 ![MuaKissGIF](https://github.com/user-attachments/assets/5011fc91-c4dc-41c8-90e6-a5540e7fef54)
 
-🚀 **Além do código**
+##🚀 **Além do código**
 
 
 

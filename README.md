@@ -1,4 +1,5 @@
-![Typing](https://readme-typing-svg.demolab.com/?size=26&width=600&lines=Olá+Dev!;Seja+Bem+Vindo(a)+ao+meu+perfil!!)
+![Typing](https://readme-typing-svg.demolab.com/?size=26&width=1200&pause=200&lines=Olá+Dev!+Seja+Bem+Vindo(a)+ao+meu+perfil!!)
+
 
 
 

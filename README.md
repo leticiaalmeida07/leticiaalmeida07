@@ -1,7 +1,4 @@
-[<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?size=26&center=true&vCenter=true&width=1000&lines=Olá+Dev!+Seja+Bem+Vindo(a)+ao+meu+perfil!!">
-</p>](https://readme-typing-svg.demolab.com/?lines=Olá+Dev!+Seja+Bem+Vindo(a)+ao+meu+perfil!!
-)
+![Typing](https://readme-typing-svg.demolab.com/?lines=Olá+Dev!+Seja+Bem+Vindo(a)+ao+meu+perfil!!)
 
 
 

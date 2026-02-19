@@ -9,7 +9,8 @@
 
 
 
-👩‍💻 Sobre mim
+👩‍💻 **Sobre mim**
+
 
 Estudante em início de graduação, apaixonada por tecnologia e desenvolvimento de software. Estou constantemente aprimorando minhas habilidades por meio de projetos práticos e estudos contínuos.
 
@@ -18,7 +19,8 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 
 ********************************************************************************************************************************************************************************************************
-💼 Conhecimentos
+💼 **Conhecimentos**
+
 
 🎨 Experiência com Canva para criação de apresentações e materiais visuais
 
@@ -35,7 +37,8 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 **********************************************************************************************************************************************************************************************************
 ![MuaKissGIF](https://github.com/user-attachments/assets/5011fc91-c4dc-41c8-90e6-a5540e7fef54)
 
-🚀 Além do código
+🚀 **Além do código**
+
 
 🎵 Interesse por música
 

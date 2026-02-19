@@ -39,7 +39,7 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 🍴 Gosto de conhecer novas experiências gastronômicas
 
-🌍 Interesse em viagens 
+🌍 Encantada por viagens, culturas e novas perspectivas
 
 🎬 Interesse em criação de conteúdos digitais
 

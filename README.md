@@ -58,7 +58,7 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 
 
-🎵 Interesse por música
+🎵 Inspirada pela música e sua capacidade de conectar pessoas e ideias
 
 
 

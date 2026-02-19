@@ -58,7 +58,7 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 
 
-🎵 Inspirada pela música e sua capacidade de conectar pessoas e ideias
+🎵 Movida pela música e pela criatividade que ela desperta
 
 
 

@@ -1,6 +1,7 @@
   
 Olá Dev! Seja bem-vindo(a) ao meu perfil!!
 
+
 👩‍💻 Sobre mim
 
 Estudante em início de graduação, apaixonada por tecnologia e desenvolvimento de software. Estou constantemente aprimorando minhas habilidades por meio de projetos práticos e estudos contínuos.
@@ -8,7 +9,7 @@ Estudante em início de graduação, apaixonada por tecnologia e desenvolvimento
 Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, com foco em aprendizado constante e crescimento profissional.
  
 
-[FlirtingWinkGIF](https://github.com/user-attachments/assets/fac7667d-1053-4e16-a7c0-dadd4b26e487)
+
 ********************************************************************************************************************************************************************************************************
 💼 Conhecimentos
 

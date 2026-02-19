@@ -26,7 +26,9 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 📚 Curso de Recursos Humanos (RH)
 
-💻 Interesse em marketing digital
+💻 Conhecimentos em Marketing Digital
+
+🛍️ Experiência prática em E-commerce
 
 📄 Produção de materiais digitais (PDFs, apresentações e conteúdos visuais)
 

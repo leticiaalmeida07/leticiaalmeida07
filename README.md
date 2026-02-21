@@ -40,9 +40,6 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 
 
 
-💻 Conhecimentos em Marketing Digital
-
-
 
 🛍️ Experiência prática em E-commerce
 

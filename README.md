@@ -25,7 +25,16 @@ Busco evoluir como desenvolvedora, criando soluções eficientes e organizadas, 
 ********************************************************************************************************************************************************************************************************
 ## 💼 **Conhecimentos**
 
+💻 Programação: Python e lógica de programação
 
+
+🌐 Desenvolvimento Web: HTML5 e CSS
+
+
+🗄️ Banco de Dados: SQL e SQLite
+
+
+🐍 Python: desenvolvimento e manipulação de dados
 
 
 🎨 Experiência com Canva para criação de apresentações e materiais visuais
